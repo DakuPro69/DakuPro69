@@ -10,7 +10,7 @@
 <div align="center">
 
 
-💬 Ask about me [here](https://github.com/DakuPro69/feedback)**
+💬 Ask about me [here](https://github.com/DakuPro69)**
 
 
 
